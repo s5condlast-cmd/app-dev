@@ -1,6 +1,6 @@
 # My Favorite Series: House, M.D.
 
-![House M.D. Logo](https://upload.wikimedia.org/wikipedia/en/1/13/House_logo.svg)
+![House M.D. Logo](https://editorial.rottentomatoes.com/article/hear-us-out-gregory-house-was-tvs-last-great-doctor/)
 
 **Genre:** Medical Drama, Mystery, Comedy  
 **Creator:** David Shore  
